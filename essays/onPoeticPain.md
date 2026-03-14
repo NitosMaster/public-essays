@@ -1,0 +1,5 @@
+# on poetic pain
+
+_bingo bango bongo. why did i write that? no fuckin idea. anyways i just watched this beauty of a video and felt somewhat called out: https://youtu.be/qCKH5fUvsPI?is=mCmR_tVZ5xTZjAat_
+
+_it gives a solid argument for why we shouldn't romanticise mental illness, or what i litteraly did on onInwardOutwardEmotions.md, which to be honest is quite funny. it's main argument is that it romanticises the weak and reinforces such behavior like religion does. sadly it never mentions the part of nietzsche that could very well romanticise sadness. that is the dionysian. one could very easily look at nietzsches love for the dionysian and seek sadness or depth because of it. such interpretation of the dionysian is fundamentally wrong. the dionysian represents oneness, emotion, chaos, etc. while the apollonian represents division, order, values, finality, meaning, etc. the will to finality or meaning, is the apollonian in fact. the true dionysian looks like trainspotting tbh. practical dionysian is something like the little death and the play with taboos that bataille talks about. It is horny, peaceful, shared, meaningless, beautiful, human... amor fati_
