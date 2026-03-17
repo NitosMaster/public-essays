@@ -1,6 +1,6 @@
 # Summer Evening (Edward Hopper)
 
-![painting](/assets/summerEvening.jpg)
+![painting](/summer-evening.jpg)
 
 
 *the whole scenario shows it is nighttime. there are no lights in the house, and nothing can be seen outside. nothing is visible through the window, and the grass is soft but obscured by the night. however, there is a great focus on the couple. they are both outside at what appears to be a very late hour. they are also wearing light clothing, which shows that this probably isn't a "watching the stars" kind of situation.*
