@@ -1,5 +1,8 @@
 # Summer Evening (Edward Hopper)
 
+![painting](/assets/summerEvening.jpg)
+
+
 *the whole scenario shows it is nighttime. there are no lights in the house, and nothing can be seen outside. nothing is visible through the window, and the grass is soft but obscured by the night. however, there is a great focus on the couple. they are both outside at what appears to be a very late hour. they are also wearing light clothing, which shows that this probably isn't a "watching the stars" kind of situation.*
 
 *as in any hopper painting, the facial expressions are where it gets interesting. the woman seems empty in a way. she is staring at the ground, devoid of emotion as if she is mourning. she even seems uncomfortable in her own body. however, the guy beside her is looking at her as if he wants to try to comfort her, but he shares the same feelings and cannot "be the man" in a way. so, both of them end up being mentally distant from each other while mourning whatever happened.*
